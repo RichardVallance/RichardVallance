@@ -1,5 +1,5 @@
 - 👋 @RichardVallance
-- 👀 I am an expert in Anatolian Minoan Linear A, Hittite, Luwian, Anatolian languages, Mycenaean Linear B, Arcado-Cypriot Linear C, ancient Greek
+- 👀 Richard Vallance Janke, expert in Anatolian Minoan Linear A, Hittite, Luwian, Anatolian languages, Mycenaean Linear B, Arcado-Cypriot Linear C, ancient Greek
 - 🌱 I have mastered Hittite and I am learning Luwian.
 - 💞️ I actively collaborate on Anatolian Minoan Linear A, Hittite, Luwian, Anatolian languages, Mycenaean Linear B, Arcado-Cypriot Linear C, ancient Greek
 - 📫 How to reach me: vallance22@zoho.com 
